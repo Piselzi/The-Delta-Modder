@@ -31,4 +31,10 @@
    
 .NET FRAMEWORK : 4.7.2
    
+   -------------------------------------
+   #HOW TO USE 
+   
+   OPEN YOUR SAVE FILE (CHAPTER 1 NOT SUPPORTED)
+   THEN CHOOSE A *HACK* to APPLY!
+   THEN AFTER YOU DO THAT CLICK ON APPLY!
    
